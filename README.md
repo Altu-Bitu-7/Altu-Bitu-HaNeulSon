@@ -1,1 +1,0 @@
-# Altu-Bitu-HaNeulSon
